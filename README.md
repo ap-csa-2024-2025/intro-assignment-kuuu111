@@ -13,7 +13,6 @@
 
 ## About Me
 Answer the questions below
-* Something interesting about me is
-* Ask Mr. Vu anything:
-* List your sports and extracurriculars you participate in
-HELLO TESTT
+* Something interesting about me is: I like movies
+* Ask Mr. Vu anything: How is your day?
+* List your sports and extracurriculars you participate in: just wrestling and merits
